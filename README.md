@@ -21,7 +21,7 @@ Any prns are fine! Doesn't matter if it's she/her , he/him , they/them , (or its
 - ⚠︎ **Pedophiles** ⤷ To be clear, i am a ***MINOR***. Find someone the same as your age.
 - ⚠︎ **Racists** ⤷ Why so pressed over a skintone brochacho ...
 - ⚠︎ **Ageplayers** ⤷ Grow up.
-- ⚠︎ **Toxic Ppl** ⤷ Self Explanatory `Being mean is an exception!`
+- ⚠︎ **Toxic Ppl** ⤷ Self Explanatory `Being mean as a joke is an exception!`
 - ⚠︎ **Proshippers** ⤷ ?...
 - ⚠︎ **Homophobics** ⤷ Oh noo two girls kissing oh noo
 - ⚠︎ **Roleplayers** ⤷ I really don't mind seeing ppl rp, but I don't really want to engage in to those, im sorry.
@@ -42,6 +42,7 @@ Any prns are fine! Doesn't matter if it's she/her , he/him , they/them , (or its
 
 
 ![Alt text](https://ik.imagekit.io/22tifjcqh/Untitled250_20251006121902.png)
+
 
 
 
