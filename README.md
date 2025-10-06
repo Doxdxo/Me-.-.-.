@@ -25,7 +25,7 @@ Any prns are fine! Doesn't matter if it's she/her , he/him , they/them , (or its
 - ⚠︎ **Proshippers** ⤷ ?...
 - ⚠︎ **Homophobics** ⤷ Oh noo two girls kissing oh noo
 - ⚠︎ **Roleplayers** ⤷ I really don't mind seeing ppl rp, but I don't want to engage in to those, im sorry.
-- ⚠︎ **Basic DNIS**
+- ⚠︎ and the rest of the **Basic DNI**
 
 ⚠︎ Also, idrc who and what you ship, i really don't care about any characters relationships *(unless necessary/apart of the lore).* Just PLEASE be respectful to others ships and don't be weird about it.
 
@@ -45,6 +45,7 @@ Any prns are fine! Doesn't matter if it's she/her , he/him , they/them , (or its
 
 
 ![Alt text](https://ik.imagekit.io/22tifjcqh/Untitled250_20251006121902.png)
+
 
 
 
