@@ -5,6 +5,8 @@ I would make a strawpage, but I'm too lazy to do so... i'm also bad at english b
 
 .𖥔 Lets start off simple , my name is Xen, but idm being called as the charac im cosplaying as ! Nicknames are fine as well, but please ask for my consent !
 
+.𖥔 Being on Busy stats on pt doesn't mean I'm not open for cuds + hide, so please come and hug with the homeless... ⤷ me i also wouldn't mind if you cud with me when i'm w/ friends! :D PLEASEPLEAPSELPLEADEPLSWAPALSPELASPELSASE
+
 。★.𖥔 *__PRNS__* :
 ⤷
 Any prns are fine! Doesn't matter if it's she/her , he/him , they/them , (or its/it) ... I couldn't careless !
@@ -42,6 +44,7 @@ Any prns are fine! Doesn't matter if it's she/her , he/him , they/them , (or its
 
 
 ![Alt text](https://ik.imagekit.io/22tifjcqh/Untitled250_20251006121902.png)
+
 
 
 
